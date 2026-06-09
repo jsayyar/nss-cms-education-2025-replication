@@ -6,6 +6,7 @@ Comprehensive Modular Survey on Education (April-June 2025), published by MoSPI.
 ## Source Report
 
 Comprehensive Modular Survey: Education, 2025
+
 Available at: https://www.mospi.gov.in/publications-reports
 Accessed: 09 June 2026. Pages v-viii.
 
