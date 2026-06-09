@@ -1,4 +1,4 @@
-# Replication: NSS Report No. 595 — CMS: Education, 2025
+# Replication: NSS Report No. 595 - CMS: Education, 2025
 
 Replication of all key findings (Highlights, pp. v-viii) from the NSS 80th Round 
 Comprehensive Modular Survey on Education (April-June 2025), published by MoSPI.
